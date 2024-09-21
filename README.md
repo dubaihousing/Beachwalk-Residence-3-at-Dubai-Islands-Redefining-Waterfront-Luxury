@@ -21,5 +21,4 @@
 <p>Beachwalk Residence 3 at Dubai Islands redefines luxury waterfront living. With its exquisite design, world-class amenities, and prime location, it offers residents the best of both worlds – the calm of coastal living and the convenience of city life. This prestigious property not only provides a home but also offers an unparalleled lifestyle, making every day feel like a retreat.</p>
 <p>As Dubai Islands continues to grow and attract attention as a premium destination, owning a piece of this paradise presents a unique opportunity for luxury living and a sound investment. Whether you’re looking for a tranquil escape, a stylish home, or a property with high returns, Beachwalk Residence 3 is the perfect choice.</p>
 </body>
-
 </html>
